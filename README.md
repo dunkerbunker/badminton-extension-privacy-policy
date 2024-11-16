@@ -29,7 +29,7 @@ We may update this Privacy Policy from time to time to reflect changes in legal 
 ## Contact Us
 
 If you have any questions about this Privacy Policy or your privacy while using Badminton Booking Extension, you can contact us at:
-[Your Contact Information]
+yoosufsayyidwork@gmail.com
 
 ## Summary
 
